@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KhadgarOp
+- :video_game: Old Console Lover
+- :musical_score: Classical Musician
+- :speech_balloon: I don't know hat i'm doing
